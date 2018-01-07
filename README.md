@@ -1,2 +1,2 @@
 # hello-world
-First Repository
+I'm Smokeybear, Love playing Video Games and Sports
